@@ -1,1 +1,2 @@
 # Inspiraci-n-visual-y-emocional
+Una fotografía no es solo una imagen, es una historia que respira. Con líneas principales, colores estratégicos y contrastes precisos, los fotógrafos guían nuestra percepción y transmiten mensajes claros. La psicología visual conecta lo técnico con lo emocional, logrando composiciones que atrapan, inspiran y emocionan. Un detalle puede ser la clave para transformar una imagen común en una obra llena de significado.
